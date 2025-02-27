@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @GuinethRequena
-- 👀 I’m interested in ... everything that involves e-commerce and a marketplace
+- 👀 I’m interested in ... everything that involves e-commerce and a marketplace. 
 - 🌱 I’m currently learning programming and English.
 - 💞️ I’m looking to collaborate on with companies that allow me to continue developing as a professional and with a collaborative environment.
 - 📫 How to reach LinkedIn profile https://www.linkedin.com/in/guineth-requena/
